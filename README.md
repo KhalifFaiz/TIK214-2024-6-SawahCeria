@@ -1,1 +1,0 @@
-# TIK214-2024-6-SawahCeria
